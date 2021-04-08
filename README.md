@@ -1,5 +1,5 @@
 # Digital
-Everything about Digital World :Digital Marketing,Blogging,and everything else
+Everything about Digital World :Digital Marketing,Blogging,and everything else https://omkarvelankar.github.io/Digital/
 
 <h1>How To Start Blogging</h1>
   <p>Often when we think of blogging, we think of blogging as something of a magic of money making</p>
